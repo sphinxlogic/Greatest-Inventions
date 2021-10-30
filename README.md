@@ -150,4 +150,5 @@ Get Big Think for Your Business. Enable transformation and drive culture at your
 Learn More ?
 
 https://bigthink.com/the-present/inventions/
+
 © Copyright 2007-2021 & BIG THINK, BIG THINK PLUS, SMARTER FASTER trademarks owned by Freethink Media, Inc. All rights reserved.
